@@ -1,1 +1,1 @@
-Rank 1 - Divyanshu Suri - All codes
+Kanika Miglani's Approach
